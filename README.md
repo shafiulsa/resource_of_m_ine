@@ -1,0 +1,1 @@
+# resource_of_m_ine
